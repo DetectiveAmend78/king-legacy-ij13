@@ -1,4 +1,4 @@
-# 
+# king legacy Scripts no-ban offers the most advanced king legacy Script, with auto-collect and teleport. Perfect for dominating any match.
 
 
 
